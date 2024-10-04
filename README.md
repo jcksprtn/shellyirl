@@ -12,6 +12,6 @@ dni -13 , 17+ , basic stuff
 
 bfyi again , always sittin wit friends (rocket/sling/sprout, katie nd dove) if im alone feel free to c+h (touch comf) but err i dont reccomned js sittin wit me if im with them unless their fine wit it.
 
-err im 15 thats it
+
 
 i like dandy's world but do NOT!! interact fandom pls stay away from em unless ik u
