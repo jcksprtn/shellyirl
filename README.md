@@ -1,8 +1,7 @@
-✧ COSMO - SCYTHE - SUB - SHELLY
-
+✧ SCYTHE  - SUNS - CHANCE
 old names fer close friends..!! cyn, mike etc,
 
-she/it, though with go by anything BUT masc terms!!
+it/its, though with go by anything BUT masc terms!!
 
 i like to draw - animate , nd do creative writings. !!
 
@@ -14,4 +13,3 @@ bfyi again , always sittin wit friends (rocket/sling/sprout, katie nd dove) if i
 
 
 
-i like dandy's world but do NOT!! interact fandom pls stay away from em unless ik u
